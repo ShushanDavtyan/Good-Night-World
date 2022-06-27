@@ -1,4 +1,2 @@
 # Good-Night-World
-My 2nd rep on GitHub
-
-Go to sleep everybody :moon:
+My 2ns rep on GitHub
